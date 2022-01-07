@@ -1,4 +1,4 @@
 Yousif
-is
+was
 super
 weak
